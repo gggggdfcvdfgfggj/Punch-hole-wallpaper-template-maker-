@@ -1,2 +1,3 @@
+![1000404723](https://github.com/user-attachments/assets/c72a5415-40ad-44fb-8290-9f1b9c8f84bf) scan qr to use
 # Punch-hole-wallpaper-template-maker-
 Makes a camera hole aka punch hole wallpaper template that you can use here is an example you upload a photo of a wallpaper and then it adds a circle to it you can choose left right or center and choose the color if it's not visible after that download the wallpaper and for example attach a rope hanging on the camera hole and when you set it as your wallpaper your actuall camera hole will hide the one on the wallpaper which creates a creative wallpaper where it looks like the sign is hanging on your camera hole
